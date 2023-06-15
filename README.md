@@ -1,0 +1,7 @@
+# SCS2208_Labsheet1
+RAD Group activity
+LAKSHAN M.C.
+LAKSHAN M.T.N.
+LAKSHAN P.A.K.C.
+LENORA R.D.G.
+LIYANAGE H.N.S.
